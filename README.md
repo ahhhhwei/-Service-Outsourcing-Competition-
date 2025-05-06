@@ -1,1 +1,5 @@
-# -Service-Outsourcing-Competition-
+# 第十五届中国大学生服务外包创新创业大赛万维艾斯东部赛区三等奖
+
+![服务外包证书_page-0001](./pic/服务外包证书_page-0001.jpg)
+
+![服务外包证书_page-0002](./pic/服务外包证书_page-0002.jpg)
